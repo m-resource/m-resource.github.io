@@ -1,1 +1,0 @@
-# m-resource.github.io
